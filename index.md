@@ -30,6 +30,8 @@ Where possible talks will be filmed. If you would prefer not to be named or film
 ## Call for venues
 We are currently looking for venues to host the event, please let us know of your interest by sending an email to babbagecon@protonmail.ch. It is our hope that from our structure, men will run babbagecon events in their own spaces worldwide.
 
+We're based in Australia, South Africa and the United States of America but are open to ideas on any space that would support us, providing there are enough men in security willing to come.
+
 ---
 
 ## Call for sponsors
